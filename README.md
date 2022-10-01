@@ -1,5 +1,5 @@
 - 👋 Hi, I'm RENTIN-TS
 - 🤠 I'm interested in game development
-- 🌱 I'm currently learning nothing
+- 🌱 I'm currently learning programming
 - 💞️ I want to cooperate with everyone
-- 📫 You can contact me by e-mail ty_1_ta@mail.ru
+- 📫 You can contact me by e-mail ty1ta1ti@gmail.com
